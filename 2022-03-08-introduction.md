@@ -1,0 +1,5 @@
+## "My Patient is Dying"
+
+It's common to feel a deep sensation of panic when encountering a patient for the first time. Feeling anxious about what the patient has and that you, his or her doctor, are not quite sure what to do exactly and how to go about diagnosing and treating the patient's underlying illness; that's a usual feeling. Although you may get used to it with time, it is still always there and ready to jump out at you at any time. Something deep within you feels like shouting out loud "Please help! My patient is dying!" It may be a very simple ailment that your patient has, yet the churing anxiety makes it feel like a very burning and panic-provoking issue.
+
+To ease this anxiety, it is necessary to build your knowledge and experience that will make you feel competent handling patient problems. For that sake, this blog is dedicated to provide this knowledge.
